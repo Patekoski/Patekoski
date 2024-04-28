@@ -10,5 +10,6 @@ Meu nome é Lucas Miguel
 Você pode entrar em contato comigo 📫
 lucaspatekoski2019@gmail.com
 
-![](link)
+![](![image](https://github.com/Patekoski/Patekoski/assets/168353241/925d282c-7438-4bb9-9eb6-fc3b146e2a87)
+)
 
