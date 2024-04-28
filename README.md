@@ -7,9 +7,10 @@ Meu nome é Lucas Miguel
 * Utilizo esse espaço para minha organização e compartilhamento dos meu projetos desenvolvidos
 
 
-Você pode entrar em contato comigo 📫
+###Você pode entrar em contato comigo 📫
+
 lucaspatekoski2019@gmail.com
 
-![](![image](https://github.com/Patekoski/Patekoski/assets/168353241/925d282c-7438-4bb9-9eb6-fc3b146e2a87)
-)
+
+ ![](https://media1.tenor.com/m/uO37-aKreAEAAAAC/kakashi-naruto.gif)
 
